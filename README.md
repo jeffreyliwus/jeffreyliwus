@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @jeffreyliwus
 - 👀 I’m interested in SOFTWARE DEVELOPMENT
 - 🌱 I’m currently learning PYTHON
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m looking to collaborate on everything that I will add to my experience and learning.
 - 📫 How to reach me linkedin.com/in/jeffreyliwanagus
 - jeffreyliwus@gmail.com
 - 😄 Pronouns: ...he/him
